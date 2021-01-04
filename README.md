@@ -1,4 +1,4 @@
-# multivariate-
+# multivariate
 
 ### จิราพร  ID 623020762-6
 
